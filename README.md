@@ -1,1 +1,1 @@
-it's only a game in a page (https://nafix.ct.ws)
+it's only a game in a page (NOT READY!)
