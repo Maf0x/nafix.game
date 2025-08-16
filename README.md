@@ -1,3 +1,3 @@
 es un juego en una pagina (https://nafix.xo.je)
 
-DISCORD: https://discord.gg/ePH8BqWn
+DISCORD: https://discord.gg/sr9H4w8b4F
