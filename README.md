@@ -1,1 +1,3 @@
-it's only a game in a page (https://nafix.xo.je)
+es un juego en una pagina (https://nafix.xo.je)
+
+DISCORD: https://discord.gg/ePH8BqWn
